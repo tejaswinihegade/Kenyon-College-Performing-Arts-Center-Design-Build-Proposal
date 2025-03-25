@@ -60,7 +60,7 @@ Led by **Tejaswini Mahadev Hegade**, our experienced team combines project manag
 ## 📝 Contact
 
 **Tejaswini Mahadev Hegade**  
-Project Manager, Scarlet Black Design Build  
+San Diego State University 
 📧 thegade6574@sdsu.edu  
 📞 (619)-432-9799
 
