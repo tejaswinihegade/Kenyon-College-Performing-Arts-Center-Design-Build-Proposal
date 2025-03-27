@@ -1,4 +1,4 @@
-# Kenyon College Performing Arts Center — Design-Build Proposal
+# Kenyon College Performing Arts Center — Design Build Proposal
 
 ## 📍 Project Overview
 
